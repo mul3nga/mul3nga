@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **caesarlord11@gmail.com**
 
-- ⚡ Fun fact **I like God :)**
+- ⚡ Fun fact **I like God and Anime.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
